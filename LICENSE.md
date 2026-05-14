@@ -1,4 +1,4 @@
-#  
+#  secret break a brainrot egg Script offers the most advanced break a brainrot egg Script, with auto-collect and god mode. Perfect for dominating any
 
 
 
